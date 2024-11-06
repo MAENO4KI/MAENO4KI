@@ -1,6 +1,11 @@
+<div align="left">
+  
+###### <sub>‘ive tasted dying . . .’
+<div align="right">
+  
+###### <sub>’& it tasted good.’
 <div align="center">
   
-###### <sub>‘pairs of objects are destined for an eventual reunion.’
 ![](https://files.catbox.moe/kl1149.png)
 
 ![](https://64.media.tumblr.com/d8d2c9c0d8d73a4bebc7eb9008117ca1/56713ce76ebaf535-4c/s2048x3072/1a1a7c89a53e0281f3580058c59566721f0bb8f4.pnj)
