@@ -1,6 +1,6 @@
 <div align="left">
   
-###### <sub>‘ive tasted dying . . .’
+###### <sub>‘ive tasted dying. . .’
 <div align="right">
   
 ###### <sub>’& it tasted good.’
@@ -8,22 +8,27 @@
   
 ![](https://files.catbox.moe/kl1149.png)
 
-![](https://64.media.tumblr.com/d8d2c9c0d8d73a4bebc7eb9008117ca1/56713ce76ebaf535-4c/s2048x3072/1a1a7c89a53e0281f3580058c59566721f0bb8f4.pnj)
+![](https://media.discordapp.net/attachments/1063515897962176512/1303750877550481480/Untitled102_20241106165945.png?ex=672ce41f&is=672b929f&hm=966b7c79d01d24ba9dee435a7ae60481918d0185c002a26fe491827c55d7f6f7&=&width=811&height=811)
 ![](https://files.catbox.moe/pct622.png)
 
-![](https://files.catbox.moe/qupc0s.gif) <sup>Xe/Xem or He/Him pronouns
+![](https://64.media.tumblr.com/bb64d3f4b66a1ae7ec51a319d9e252f5/a2c9f35280bc6455-cf/s75x75_c1/d602a062fd77e037c723a2531eeb463e3733883d.gifv) <sup>Xe/Xem or He/Him pronouns
 
- ![](https://files.catbox.moe/levpgb.gif) <sup>I don't go by any name, that means you can call me whatever you want.
+ ![](https://64.media.tumblr.com/f6325f4a609ccdbeb4398b900ff269c6/a2c9f35280bc6455-7f/s75x75_c1/01f9b6e4bdc03e28c641d4f23c18ee435f98ad4a.gifv) <sup>I don't go by any name, that means you can call me whatever you want.
  ![](https://files.catbox.moe/yy3gcr.png)
- ![](https://64.media.tumblr.com/624b6694328380b7bc35dba83c81cf27/c6ded6d0b081f327-58/s1280x1920/d17922d48641c3f3f733d811fbdef88fa6641d90.gif)
  
- ![](https://64.media.tumblr.com/898dd259b5bfe749b37fb2961204a5b6/346ba69c2feb4339-7b/s75x75_c1/9df7d1d616070c446fbca32a1f4b41e6308b5307.gif) [strawpage](https://blades-bf.straw.page/)
+ ![](https://64.media.tumblr.com/3c8a24bbe16f6df65621cd07ca2c22f4/3e7c53a96998f6ad-8e/s75x75_c1/c3acb7e3215f794f09547a8fba418877e86cccaa.gifv) [strawpage](https://blades-bf.straw.page/)
  
  ![](https://64.media.tumblr.com/876ba7ab2f5b7f776e2799ed103ecf4d/035ab0bcb0979d85-b0/s500x750/ae395b6dd6d1f17fdc63dca23b881dbb4c421f90.pnj)
  
- ![](https://64.media.tumblr.com/cac2d1d192b109233a1fd991a305c094/3b058a9e8494a6de-9a/s75x75_c1/ccf984b27136430be463b5f2bfe88f47bf428574.gifv) <sup>c + h is always welcomed even if it's not on my name.
+ ![](https://64.media.tumblr.com/d563e0636285b3919ed8b477d9bbdcac/ea08c8c0ae432918-5d/s75x75_c1/8414d0d941b99707f1ff8290304534a355d858cf.gifv) <sup>c + h is always welcomed even if it's not on my name.
 
- ![](https://64.media.tumblr.com/9abad9973cd78b80f833754b83a8e4e8/e3171d1c26bc6727-9a/s75x75_c1/f2a2eead99e99f5cb34c7f3ed69b74a0f90ce854.gifv) DO NOT COPY MY SKINS
+ ![](https://64.media.tumblr.com/897c81c7be197898e44332b786946c0d/37221ecbab8edd94-6b/s75x75_c1/8a0ecd5b9cb1b4302ee471b2407f638c6f6140ae.gifv) DO NOT COPY MY SKINS
  
 
-![](https://64.media.tumblr.com/4c44fc528e935b40d361111b6e19c026/c6ded6d0b081f327-c6/s1280x1920/7e6a3aadff0b3062fd276fd31ee2e100f618bb8e.gifv)
+![](https://64.media.tumblr.com/83c7376da8b5c08b692202692a53fa8c/f5d5c61e5fcac881-17/s2048x3072/da2d823c6174b4359cb84974a7d7a0a1f4a6e264.pnj)
+<div align="left">
+  
+###### <sub>‘Teach me more about the human world. . .’
+<div align="right">
+  
+###### <sub>’and about yourself too, Agape. ♡’
