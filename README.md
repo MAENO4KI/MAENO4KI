@@ -16,7 +16,7 @@
  ![](https://64.media.tumblr.com/f6325f4a609ccdbeb4398b900ff269c6/a2c9f35280bc6455-7f/s75x75_c1/01f9b6e4bdc03e28c641d4f23c18ee435f98ad4a.gifv) <sup>I don't go by any name, that means you can call me whatever you want.
  ![](https://files.catbox.moe/yy3gcr.png)
  
- ![](https://64.media.tumblr.com/3c8a24bbe16f6df65621cd07ca2c22f4/3e7c53a96998f6ad-8e/s75x75_c1/c3acb7e3215f794f09547a8fba418877e86cccaa.gifv) [strawpage](https://maeno4ki.straw.page/) 
+ ![](https://64.media.tumblr.com/3c8a24bbe16f6df65621cd07ca2c22f4/3e7c53a96998f6ad-8e/s75x75_c1/c3acb7e3215f794f09547a8fba418877e86cccaa.gifv) [strawpage](https://maeno4ki.straw.page/) + [pronounspage](https://en.pronouns.page/@daisukee)
  
  ![](https://64.media.tumblr.com/876ba7ab2f5b7f776e2799ed103ecf4d/035ab0bcb0979d85-b0/s500x750/ae395b6dd6d1f17fdc63dca23b881dbb4c421f90.pnj)
  
